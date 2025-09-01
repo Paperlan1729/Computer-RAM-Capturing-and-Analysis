@@ -1,4 +1,4 @@
-Here's an Computer Ram capuuring and Analysis steps being used by me.
+Here's an Computer Ram Capturing and Analysis steps being used by me.
 
 
 
